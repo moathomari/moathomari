@@ -1,4 +1,4 @@
-# Moath Omari  1️⃣ 0️⃣ 7️⃣
+# Moath Omari
 
 👋 Greetings! I'm Moath Omari, a Professional Quality Assurance Engineer @ [LEADTOOLS](https://www.leadtools.com/) 🧪🛠️
 
